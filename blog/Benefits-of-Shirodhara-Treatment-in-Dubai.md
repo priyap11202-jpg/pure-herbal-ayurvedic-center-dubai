@@ -27,7 +27,7 @@ Shirodhara is an Ayurvedic therapy where warm herbal oils are gently poured on t
 
 Dubai-based Ayurvedic centers provide authentic Shirodhara therapies performed by trained practitioners. Combining traditional techniques with modern comfort, it’s an ideal way for residents and visitors to enjoy holistic wellness.
 
-Learn more about Shirodhara treatment here: [https://pureherbalayurvedic.com/shirodhara/](https://pureherbalayurvedic.com/shirodhara/)
+Learn more about [Shirodhara treatment in Dubai](https://pureherbalayurvedic.com/sirodhara/)
 
 tags: Shirodhara Dubai, 
 Benefits of Shirodhara Treatment in Dubai,
