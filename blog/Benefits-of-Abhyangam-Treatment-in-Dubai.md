@@ -30,14 +30,14 @@ Dubai offers access to skilled therapists trained in authentic Ayurvedic methods
 
 Learn more information about [Abhyangam Treatment in Dubai](https://pureherbalayurvedic.com/abhyangam/)
 
-tags: "Abhyangam Dubai",
+tags: Abhyangam Dubai,
 
-"Abhyangam Treatment in Dubai",
+Abhyangam Treatment in Dubai,
 
-"Ayurvedic Massage Dubai",
+Ayurvedic Massage Dubai,
 
-"Wellness Dubai", 
+Wellness Dubai, 
 
-"Stress Relief Therapy", 
+Stress Relief Therapy, 
 
-"Holistic Healing Dubai"]
+Holistic Healing Dubai
